@@ -1,54 +1,68 @@
 <p align="center">
- <img width="468" height="60" alt="1000006184" src="https://github.com/user-attachments/assets/1e39213d-0bad-45a0-96b3-9efb2f8f1f86" />
+<img width="640" height="360" alt="1000006768" src="https://github.com/user-attachments/assets/69d922ef-cbf8-4ece-9603-dcac6284c84d" />
 </p>
 
 <p align="center">
- <img width="300" height="40" alt="1000006367" src="https://github.com/user-attachments/assets/ea53fc20-e3dd-44b5-8c46-05d05aa77360" />
+<img width="594" height="75" alt="1000006770" src="https://github.com/user-attachments/assets/6a7767a7-ea1e-453c-aa19-17a7b9633db7" />
 </p>
 
-<p align="center">
-  <img width="150" height="20" alt="1000006310" src="https://github.com/user-attachments/assets/10c6c267-75b6-420d-ae34-42f137cee888" />
-</p>
-<p align= "center">
-<img width="690" height="91" alt="1000006381" src="https://github.com/user-attachments/assets/613733d0-daeb-4416-a999-6f8867c7b256" />
-</p>
-<p align="center">
-  <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7DCBFA5&width=435&lines=Disbelieving%2C+that's+the+real+crime!" alt="Typing SVG">
-  </a>
-</p>
-
-<p align="center">
-<img width="150" height="20" alt="1000006361" src="https://github.com/user-attachments/assets/93c65f77-d06b-47af-a81b-a1689cd79bd1" />
-</p>
-
-<p align="center">
-heelloo helloo ! kryptic here, other names are krypto, aand my fictkins ! (fictkins in straw !!) 
-</p>
-
-<p align="center">
-transmasc they/he ! (LET ME OUT OF THE CLOSET AAAAAAAA)
-</p>
-
-<p align="center">
- i make poems for fun ! check out my doc,, heh.
-</p>
-
-<p align="center">
- Yyoouu may also use me as a dictionary ? people are always using me as a dictionary ,, meh.
-</p>
-
-
-<p align="center">
-<img width="99" height="56" alt="1000006373" src="https://github.com/user-attachments/assets/c9886643-e56c-4bf7-a333-cb1a9e5c219a" />
-</p>
-<p align="center">
-<img width="150" height="20" alt="1000006310" src="https://github.com/user-attachments/assets/d33ade99-ce38-4ec3-a56f-925e73bb3389" />
-</p>
-<p align="center">
-<img width="300" height="40" alt="1000006374" src="https://github.com/user-attachments/assets/5f49b613-710e-4e21-b795-0f6f9621baa9" />
-</p>
-<p align="center">
-<img width="400" height="53" alt="1000006371" src="https://github.com/user-attachments/assets/d1d65c34-4bf4-4e84-9066-85216810712f" />
+<div align="center">
  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=564AA6&center=true&vCenter=true&multiline=true&width=435&lines=Your+time+has+come+%2C)](https://git.io/typing-svg)
+
+</div>
+
+<div align="center">
+ 
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=564AA6&center=true&vCenter=true&multiline=true&width=435&lines=Kiss+it+all+goodbye+!)](https://git.io/typing-svg)
+ 
+</div>
+
+<p align="center">
+ <img width="100" height="100" alt="1000006771" src="https://github.com/user-attachments/assets/b548a3ea-d561-4541-8ad3-512df7450d2b" />
+
+</p>
+
+<div align="center">
+ 
+$\color{#564AA6}\small{\textbf{hheelloo ! im kryptikal ! otherwise known as kryp for short .( you can call me by my fictkins aswell ! ) }}$
+
+</div>
+
+<div align ="center">
+ 
+ $\color{#564AA6}\small{\textbf{ I'm really friendly !! please , come up and int with me if you'd like ! ( Unless you're on my DNI / IWEC list . ) }}$
+ 
+</div>
+<div align="center"> 
+ 
+ $\color{#564AA6}\small{\textbf{ Although , I may be a bit distant at first . please don't let this ward you off !!}}$
+ 
+</div>
+<div align ="center">
+ 
+$\color{#564AA6}\small{\textbf{Apparently I'm somewhat known for my poems . .(totally not me trying to advertise) Hm , that's certainly an achievement , huh ?}}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{ Check my straw for more about me . sorry , I don't wanna fit everything on here , im lazy . }}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{uuhh . thx for reading !! .}}$
+
+</div>
+
+<p align="center">
+<img width="150" height="20" alt="1000006772" src="https://github.com/user-attachments/assets/6b915934-2db5-4a4a-b301-4ef857ea891d" />
+<img width="150" height="20" alt="1000006774" src="https://github.com/user-attachments/assets/3fe38ea1-58e2-4e74-ad44-cd6769f69436" />
+</p>
+
+<p align="center">
+<img width="190" height="190" alt="1000006781" src="https://github.com/user-attachments/assets/fc3a6acf-8105-46ab-bfce-ac9164f299a2" />
+<img width="90" height="90" alt="1000006780" src="https://github.com/user-attachments/assets/4aade4e3-b91f-40f5-b039-ec3da6fbcb91" />
 </p>
