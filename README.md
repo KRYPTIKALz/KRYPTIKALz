@@ -19,8 +19,7 @@
 </div>
 
 <p align="center">
- <img width="100" height="100" alt="1000006771" src="https://github.com/user-attachments/assets/b548a3ea-d561-4541-8ad3-512df7450d2b" />
-
+<img width="250" height="250" alt="1000006787" src="https://github.com/user-attachments/assets/1426bde8-c148-4158-8415-b2694d87f47a" />
 </p>
 
 <div align="center">
@@ -47,7 +46,7 @@ $\color{#564AA6}\small{\textbf{Apparently I'm somewhat known for my poems . .(to
 
 <div align="center">
 
-$\color{#564AA6}\small{\textbf{ Check my straw for more about me . sorry , I don't wanna fit everything on here , im lazy . }}$
+$\color{#564AA6}\small{\textbf{ Check my straw for more about me ! sorry , I don't wanna fit everything on here , im lazy . }}$
 
 </div>
 
