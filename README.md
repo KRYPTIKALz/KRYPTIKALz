@@ -28,6 +28,12 @@ $\color{#564AA6}\small{\textbf{hheelloo ! im kryptikal ! otherwise known as kryp
 
 </div>
 
+<div align="center">
+ 
+$\color{#564AA6}\small{\textbf{ my MBTI type is INTP !! }}$
+
+</div>
+
 <div align ="center">
  
  $\color{#564AA6}\small{\textbf{ I'm really friendly !! please , come up and int with me if you'd like ! ( Unless you're on my DNI / IWEC list . ) }}$
