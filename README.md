@@ -8,13 +8,13 @@
 
 <div align="center">
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=564AA6&center=true&vCenter=true&multiline=true&width=435&lines=Your+time+has+come+%2C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=564AA6&center=true&vCenter=true&multiline=true&width=435&lines=Dont+you+feel+worthless+?)](https://git.io/typing-svg)
 
 </div>
 
 <div align="center">
  
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=564AA6&center=true&vCenter=true&multiline=true&width=435&lines=Kiss+it+all+goodbye+!)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=564AA6&center=true&vCenter=true&multiline=true&width=435&lines=Don't+you+feel+weak+?)](https://git.io/typing-svg)
  
 </div>
 
