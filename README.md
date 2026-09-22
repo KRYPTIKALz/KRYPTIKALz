@@ -116,3 +116,7 @@ $\color{#564AA6}\small{\textbf{ if ur gonna vent just know i am NOT the best can
 $\color{#564AA6}\small{\textbf{⤷﹒ⵌ┆ ( FOR OOMFS ) I have instances where I'm distant , but this is usually because im changing how i usually act . }}$
 
 </div>
+
+$\color{#564AA6}\small{\textbf{ shoutout to these chungies btw }}$
+
+<img width="1179" height="388" alt="1000006806" src="https://github.com/user-attachments/assets/a71ca440-9430-4c1d-8ad3-5165959e1e2f" />
