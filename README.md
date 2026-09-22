@@ -71,3 +71,48 @@ $\color{#564AA6}\small{\textbf{uuhh . thx for reading !! .}}$
 <img width="190" height="190" alt="1000006781" src="https://github.com/user-attachments/assets/fc3a6acf-8105-46ab-bfce-ac9164f299a2" />
 <img width="90" height="90" alt="1000006780" src="https://github.com/user-attachments/assets/4aade4e3-b91f-40f5-b039-ec3da6fbcb91" />
 </p>
+
+<details>
+<summary>click here for BYI !</summary>
+ 
+ <div align="center">
+  
+$\color{#564AA6}\small{\textbf{╭﹒ᶻ 𝗓 𐰁﹒ BYI}}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{ I tend to be very talkative when it comes to stuff about me , please tell me if this bothers you .}}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{ DNCOMFORT . NEVER COMFORT ME . IF YOU SEE ME SAD ? ACT NORMAL . I DONT NEED YOUR HELP GO AWAAYYY }}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{ ppleeaasee . DONT overly joke about suggestive stuff . oomfs may joke a little but thats only if theyre SUPER DUPER close . }}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{ PLEASEJUST BE OPEN ABOUT WHETHER I BOTHER YOU OR NOT . PPLEEASEE ID RATHER DIE THAN LIVE FEELING THIS GUILTY }}$
+
+</div>
+
+<div align="center">
+ 
+$\color{#564AA6}\small{\textbf{ if ur gonna vent just know i am NOT the best candidate for emotional support because idk what to say or feel about you venting}}$
+
+</div>
+
+<div align="center">
+
+$\color{#564AA6}\small{\textbf{⤷﹒ⵌ┆ ( FOR OOMFS ) I have instances where I'm distant , but this is usually because im changing how i usually act . }}$
+
+</div>
