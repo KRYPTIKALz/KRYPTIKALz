@@ -18,6 +18,10 @@
  
 </div>
 
+<div align="center">
+
+$\color{#564AA6}\tiny{\textbf{lyrics from DIVINE by styxvii}}$
+
 <p align="center">
 <img width="250" height="250" alt="1000006787" src="https://github.com/user-attachments/assets/1426bde8-c148-4158-8415-b2694d87f47a" />
 </p>
@@ -72,6 +76,8 @@ $\color{#564AA6}\small{\textbf{uuhh . thx for reading !! .}}$
 <img width="90" height="90" alt="1000006780" src="https://github.com/user-attachments/assets/4aade4e3-b91f-40f5-b039-ec3da6fbcb91" />
 </p>
 
+<div align="center">
+ 
 <details>
 <summary>click here for BYI !</summary>
  
@@ -118,5 +124,11 @@ $\color{#564AA6}\small{\textbf{⤷﹒ⵌ┆ ( FOR OOMFS ) I have instances where
 </div>
 
 $\color{#564AA6}\small{\textbf{ shoutout to these chungies btw }}$
-
+<div align="center">
+ 
 <img width="1179" height="388" alt="1000006806" src="https://github.com/user-attachments/assets/a71ca440-9430-4c1d-8ad3-5165959e1e2f" />
+
+</div>
+
+</p>
+creds to people who made the wifies image stuff on here . very nice very cool tahnk you cool people
