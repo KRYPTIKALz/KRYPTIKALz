@@ -79,7 +79,7 @@ $\color{#564AA6}\small{\textbf{uuhh . thx for reading !! .}}$
 <div align="center">
  
 <details>
-<summary>click here for BYI !</summary>
+<summary>$\color{#564AA6}\tiny{\textbf{. ︵ ✧click for BYI}}$</summary>
  
  <div align="center">
   
