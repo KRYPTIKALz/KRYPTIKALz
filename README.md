@@ -34,9 +34,7 @@ $\color{#564AA6}\small{\textbf{hheelloo ! im kryptikal ! otherwise known as kryp
 
 <div align="center">
  
-$\color{#564AA6}\small{\textbf{ my MBTI type is INTP !! }}$
-
-</div>
+$\color{#564AA6}\small{\textbf{ INTP and SP4 ! }}$
 
 <div align ="center">
  
