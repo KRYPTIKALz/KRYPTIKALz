@@ -41,7 +41,7 @@ $\color{#3F517D}\small{\textbf{ hhheelloo ! i'm kryptikal ! otherwise known as k
 
 $\color{#3F517D}\small{\textbf{ ( call me by my fictkins if you want ! tco is my main kin :D ) }}$
 
-$\color{#3F517D}\small{\textbf{ i'm an INTP and SP4 ! they/he prns ARE appreciated ! }}$
+$\color{#3F517D}\small{\textbf{ i'm an INTP and SP4 !  }}$
 
 $\color{#3F517D}\small{\textbf{ very friendly !! come int with me if you like !!}}$
 
