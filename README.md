@@ -47,8 +47,7 @@ $\color{#3F517D}\small{\textbf{ very friendly !! come int with me if you like !!
 
 $\color{#3F517D}\small{\textbf{ might be a bit distant at first ,, dont let this ward you off please !!}}$
 
-$\color{#3F517D}\small{\textbf{ VERY proud writer in poetry ! ( im actually inexperienced . advice is EXTREMELY appreciated !! ) }}$
-
+$\color{#3F517D}\small{\textbf{ VERY proud writer in poetry ! (wanna see some of my work ? check out the doc link !) }}$
 $\color{#3F517D}\small{\textbf{ Check straw for more about me !! I can't really fit everything on here . sweats . }}$
 
 $\color{#3F517D}\small{\textbf{ thankyou for reading !! >: ] }}$
